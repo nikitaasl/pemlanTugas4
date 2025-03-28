@@ -1,1 +1,5 @@
-# pemlanTugas4
+ ![Cuplikan layar 2025-03-28 192047](https://github.com/user-attachments/assets/6125b85e-f610-484e-b5d8-32250a7f27e3)
+ ![Cuplikan layar 2025-03-28 192059](https://github.com/user-attachments/assets/899dfbea-1f2e-43cf-9e45-b0290029534d)
+ ![Cuplikan layar 2025-03-28 192110](https://github.com/user-attachments/assets/0a2776d2-d80e-4e56-bad4-9fedf2733638)
+![Cuplikan layar 2025-03-28 192123](https://github.com/user-attachments/assets/9849b6ef-d487-4e58-babd-2048e6b6c312)
+![Cuplikan layar 2025-03-28 192144](https://github.com/user-attachments/assets/97abe2fe-8cfd-44f8-8b1d-9df7fc01c4d3)
